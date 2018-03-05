@@ -8,7 +8,7 @@ Pina Colada
 Raspberry Chocolate
 Plain
 
-#### Events
+### Events
 
 Our next event is the Texas VegFest. Hope to see you there!
 
