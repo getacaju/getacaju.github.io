@@ -1,6 +1,6 @@
 ---
 title: Acajú Cashew Yogurt
-description: Plant-based. Creamy. Delicious.
+description: Plant based. Creamy. Delicious.
 ---
 
 ![useful image]({{ site.url }}/assets/images/acajupromo.jpg)
@@ -16,7 +16,7 @@ Acajú comes in five different flavors
 
 ### Events
 
-Our next event is the [Texas VegFest](https://www.facebook.com/TxVegFest/) in Austin. Hope to see you there!
+Our next event is the [Texas VegFest](https://www.facebook.com/TxVegFest/) in Austin on April 7th, 2018. Hope to see you there!
 
 ### Our Story
 
