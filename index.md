@@ -22,6 +22,7 @@ Upcoming events:
 - [Rowdy Girl Mayfest](https://rowdygirlsanctuary.org/vegan-may-fest) May 19th 2018, 10am-6pm, 9667 W Hwy 35 Angleton, Texas 77515
 - [Vegandale](https://www.vegandalefest.com/houston/)  June 2nd 2018, 11am-7pm, Sam Houston Park (1000 Bagby St., Houston)
 - [Houston VegFest](http://www.vegansocietyofpeace.org/vegfesthouston) July 21st 2018, 10am-5pm, Stafford Center (10505 Cash Road, 10505 Cash Rd, Stafford, TX 77477)
+
 Watch this space for more events this year!
 
 ### Our Story
