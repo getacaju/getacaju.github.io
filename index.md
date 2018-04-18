@@ -21,7 +21,7 @@ Our next event is the [Wandering Vegan Market](https://www.facebook.com/thewande
 Upcoming events:
 - [Rowdy Girl Mayfest](https://rowdygirlsanctuary.org/vegan-may-fest) in Houston on May 19th 2018, 10am-6pm. Venue: 9667 W Hwy 35 Angleton, Texas 77515
 - [Vegandale](https://www.vegandalefest.com/houston/) in Houston on June 2nd 2018, 11am-7pm. Venue: Sam Houston Park (1000 Bagby St., Houston)
-- [Houston VegFest](http://www.vegansocietyofpeace.org/vegfesthouston) July 21st 2018, 10am-5pm, Stafford Center (10505 Cash Road, 10505 Cash Rd, Stafford, TX 77477)
+- [Houston VegFest](http://www.vegansocietyofpeace.org/vegfesthouston) July 21st 2018, 10am-5pm. Venue: Stafford Center (10505 Cash Road, 10505 Cash Rd, Stafford, TX 77477)
 
 Watch this space for more events this year!
 
