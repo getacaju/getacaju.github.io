@@ -16,11 +16,11 @@ Acajú comes in five different flavors
 
 ### Events
 
-Our next event is the [Wandering Vegan Market](https://www.facebook.com/thewanderingveganatx/) in Austin on May 5th 2018, Noon -4pm. Venue: Arlo's at The Grackle @ 1700 E 6th St, Austin, TX. Hope to see you there!
+Our next event is the [Wandering Vegan Market](https://www.facebook.com/thewanderingveganatx/) on May 5th 2018, Noon -4pm. Venue: Arlo's at The Grackle @ 1700 E 6th St, Austin, TX. Hope to see you there!
 
 Upcoming events:
-- [Rowdy Girl Mayfest](https://rowdygirlsanctuary.org/vegan-may-fest) in Houston on May 19th 2018, 10am-6pm. Venue: Rowdy Girl Sanctuary @ 9667 W Hwy 35 Angleton, TX.
-- [Vegandale](https://www.vegandalefest.com/houston/) in Houston on June 2nd 2018, 11am-7pm. Venue: Sam Houston Park @ 1000 Bagby St., Houston, TX.
+- [Rowdy Girl Mayfest](https://rowdygirlsanctuary.org/vegan-may-fest) on May 19th 2018, 10am-6pm. Venue: Rowdy Girl Sanctuary @ 9667 W Hwy 35 Angleton, TX.
+- [Vegandale](https://www.vegandalefest.com/houston/) on June 2nd 2018, 11am-7pm. Venue: Sam Houston Park @ 1000 Bagby St., Houston, TX.
 - [Houston VegFest](http://www.vegansocietyofpeace.org/vegfesthouston) on July 21st 2018, 10am-5pm. Venue: Stafford Center @ 10505 Cash Rd, Stafford, TX.
 
 Watch this space for more events this year!
